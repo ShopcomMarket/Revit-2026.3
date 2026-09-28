@@ -12,7 +12,7 @@ https://www.shopcom.tn/product/revit-2026-3/
 Product Price : 7,018 $
 
 Payment :
-https://www.shopcom.tn/payment
+https://www.shopcom.tn/payments
 
 Website :
 https://www.shopcom.tn
